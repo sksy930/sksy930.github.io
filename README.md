@@ -1,4 +1,5 @@
 # sksy930.github.io
+
 1﻿) Introduction
 : My name is Seo Young Lee. I was born on September 30, 2003. I lived in Daegu before I entered university. Currently, I live in a dormitory in the school in Suwon.After graduating from Daegu Girls High school, I re-studied for the College Scholastic Ability Test, CSAT for a year. After I taked the exam, I entered Sunkyunkwan University in 2023, and majored in software.
 
